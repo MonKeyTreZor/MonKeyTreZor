@@ -1,5 +1,5 @@
 👋 Hi, I’m @MonKeyTreZor.  
-👀 I’m passionate about AI, cybersecurity, and blockchain.  
+👀 I’m passionate about AI, cybersecurity, trading and blockchain.  
 🌱 I’m currently mastering C language at 42 Lausanne and diving into complex programming challenges.  
 💪 Driven by self-discipline, I'm constantly expanding my skills and challenging myself to achieve ambitious goals.  
 💼 On a journey to build expertise in programming, finance, and independent trading, aiming for financial independence and a highly-skilled career in tech.  
