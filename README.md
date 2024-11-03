@@ -4,7 +4,7 @@
 💪 Driven by self-discipline, I'm constantly expanding my skills and challenging myself to achieve ambitious goals.  
 💼 On a journey to build expertise in programming, finance, and independent trading, aiming for financial independence and a highly-skilled career in tech.  
 💞️ I’m looking to collaborate on open-source projects related to security, AI, or blockchain.  
-📫 How to reach me: (ton email, LinkedIn ou un autre lien de contact).  
+📫 How to reach me: monkeytrezor@gmail.com
 😄 Pronouns: he/him.  
 ⚡ Fun fact: I'm not only an AI enthusiast but also inspired by mindfulness principles like those in "The Power of Now," blending tech with a balanced life approach.  
 
